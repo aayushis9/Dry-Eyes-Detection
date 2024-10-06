@@ -20,4 +20,4 @@ Research project on early DED using image and statistical data
 1) 
 
 ### Aayushi
-1) 
+1) https://docs.google.com/document/d/15lG1uelksxKfQ-L7pE0hC3vxhtxljlRzRZHnf9rDkrQ/edit?usp=sharing
